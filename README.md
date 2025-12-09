@@ -8,12 +8,10 @@
 
 ✓ 你可以在这里找到一些因各种原因被视频网站下架的视频备份
 
-**✓ 莫老师的主页：**
+**✓ Craft-LogicSpark的主页：**
 
 小红书：https://www.xiaohongshu.com/user/profile/61b58ae00000000010007a3a
 
 bilibili：https://space.bilibili.com/3546713941870741?spm_id_from=333.1007.0.0
 
-##### Craft-LogicSpark的粉丝群
-
-<img src="file:///C:/Users/X1524/Pictures/Screenshots/屏幕截图%202025-12-08%20172905.png" title="" alt="" width="417">
+# 
