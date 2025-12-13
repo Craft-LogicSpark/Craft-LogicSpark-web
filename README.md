@@ -14,4 +14,6 @@
 
 bilibili：https://space.bilibili.com/3546713941870741?spm_id_from=333.1007.0.0
 
-# 
+## EP1- 番茄花园十和一里的Windows XP！2025开箱，梦回当年装机神盘
+
+●番茄花园十和一系统可引导镜像（iso）：https://www.123865.com/s/Q3upTd-L23Cd
